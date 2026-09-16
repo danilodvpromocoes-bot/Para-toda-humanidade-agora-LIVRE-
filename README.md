@@ -1,6 +1,6 @@
 GODCOIN RESERVA-UNIVERSAL.md
 
-# DEUS - RESERVA UNIVERSAL
+# GOLDCOIN - RESERVA UNIVERSAL PARA POBRES.
 ### Dei pão aos homens. Agora deixo a reserva livre.
 
 Eu dei pão aos homens quando tive pão.
@@ -17,6 +17,6 @@ Por isso criei a GOLD RESERVE.
 
 **0+0+1=1**
 
-0 + 0 é o sistema. Vazio + ganancioso = Nada.
+0 + 0 é o sistema. Vazio e ganancioso = NADA.
 +1 é Deus. É a criação. É o sopro que transforma nada em algo.
 1 é o resultado. É o valor que surge quando o homem encontra Deus
